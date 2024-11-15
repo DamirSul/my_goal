@@ -1,5 +1,5 @@
 # my_goal
-Roadmaps for my GOAL, no pain no gain, guys!
+Roadmaps for my GOAL (5 years hardworking), no pain no gain, guys!
 
 # 🛠️ Путь к мастерству в IT
 
